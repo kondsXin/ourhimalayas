@@ -9,6 +9,7 @@
 
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/Pangu2020together/guo-whistleblowing-revolution)
 
+[IPFS 破墙七哥视频](https://github.com/kondsXin/g/blob/main/readme.md)
 ---
 
 #### [樱花FM┃中信旗下麻袋财富爆雷，投资人或将血本无归](/content/gnews/2696336.md)
